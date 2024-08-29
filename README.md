@@ -1,4 +1,4 @@
-# Tejes Patil's Portfolio
+
 
 👋 Hello, I'm **Tejes Patil**!
 
