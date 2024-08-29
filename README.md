@@ -9,7 +9,7 @@
 - 📊 Proficient in creating interactive dashboards and skilled in market research to drive business decisions.
 
 ## 🌐 Connect with Me
-- [LinkedIn](https://www.linkedin.com/in/tejaspatil58568)  
+- [LinkedIn](https://www.linkedin.com/in/tejes-patil-3b0404228/)  
 - [GitHub](https://github.com/Tejas-0305)
 
 ## 🛠️ Projects
